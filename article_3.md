@@ -1,1 +1,5 @@
-hello from article 3
+## Entrepreneurial/Business
+
+![my Recreational...picture by me](3dprinting.jng)
+
+Five years after graduating, I want to be able to tell my classmates that I have successfully continued growing the 3D printing service business (3djellyprints) that I started during university. What started as a small business has grown through time, effort, experience, and the connections I have made with customers. Building my own business has been challenging at times, especially while balancing it with my full-time career, but I have learned a lot about communicating with customers, managing orders, setting prices, promoting my services, and solving problems on my own. I have also been able to use my UX design skills to improve my business website and make it easier for customers to learn about my services, request quotes, and place custom orders. I am proud that I have been able to continue something that I started as a university student and turn it into a successful small business. It has also given me entrepreneurial and business experience outside of my professional career as a UX designer.
