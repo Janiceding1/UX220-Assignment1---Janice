@@ -1,4 +1,5 @@
 ## Recreational
 
-![my Recreational...picture by me]()
+![my Recreational...picture by me](3dprinting.jng)
 
+Five years after graduating, I want to be able to tell my classmates that I have continued travelling and experiencing different parts of the world. I travelled to Italy during university, and after graduating, I continued exploring Europe by visiting Spain, Portugal, France, Barcelona, and other places. Travelling has become something that I make time for every year, whether I am travelling with my family, friends, or my partner. Even after starting a full-time career, I have continued to make time for experiences outside of work. Travelling has allowed me to experience different cultures, try new foods, visit places I have always wanted to see, and create memories with the people who are important to me. It has also helped me become more independent and open to different cultures and ways of life. I am proud that I have been able to balance my career with my personal life and continue doing something that I really enjoy.
